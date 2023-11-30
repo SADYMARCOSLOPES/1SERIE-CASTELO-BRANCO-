@@ -1,6 +1,8 @@
 # 1SERIE-CASTELO- e uma sala divertida
 
-                                                                                                   tigre dente de sabria e diversos tigre  
+                                                                                                    
+                                                                                
+                                                                                   tigre dente de sabria e diversos tigre  
 
 Vítima de bruscas mudanças climáticas, a espécie foi extinta junto com outros animais sapiensTigres-dentes-de-sabre, leões-americanos, bisontes-antigos e cavalos-selvagens terão sido extintos, na Califórnia, por causa da seca e de grandes incêndios
 foram encontrado no brasil Os primeiros ossos foram achados em Lagoa Santa, Minas Gerais, em 1839, mas há registro deles também no Ceará, Paraíba, Sergipe, Bahia, Brasília e Mato Grosso do Sul.
