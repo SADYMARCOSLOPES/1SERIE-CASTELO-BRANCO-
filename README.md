@@ -16,4 +16,4 @@ O tigre do sul da China é uma subespécie do tigre comum do país e está em ri
 População de tigres da Índia apresenta recuperação e anima ...
 Isso representa cerca de 70% da população mundial de tigres selvagens, que é de cerca de 4.500, de acordo com Onde se encontra os tigres?
 Tigre: características, habitat, comportamento - Brasil Escola
-Ásia Habitat do tigre No passado, tigres se espalhavam amplamente pela Ásia. Atualmente, eles habitam menos de 6% de sua distribuição histórica, sendo observadas populações de tigres no nordeste da China, Coreia do norte e corei do sul , Rússia e partes da Índia e da região do Himalia. tigre branco ou tigre ele pode ser branco mais ele e normmal pois ele pode nacer de um casal normal de tigre bangela mais e raro ele nacer branco O tigre-de-bengala vive principalmente em florestas da Índia, mas também em algumas regiões do Nepal, do Butão e nos pântanos do Golfo de Bengala 
+Ásia Habitat do tigre No passado, tigres se espalhavam amplamente pela Ásia. Atualmente, eles habitam menos de 6% de sua distribuição histórica, 
